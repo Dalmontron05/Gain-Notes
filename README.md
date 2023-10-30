@@ -60,7 +60,7 @@
 
 ## Torso Rotation - [19:58](https://youtu.be/4Vs0drGttvo?si=Uk-eJqRzg8zlF5TD&t=1198)
 - 20Lbs
-- Nipple Level (20)
+- Nipple Level (19)
 - Handle
 - One Machine Arm
 
